@@ -1,0 +1,2 @@
+# DuciJuci.github.io
+tanuló
